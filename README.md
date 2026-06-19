@@ -1,1 +1,0 @@
-# Quan-Ly-Sim-AI.
